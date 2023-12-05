@@ -1,5 +1,5 @@
 # 💫 About Me:
-Atualmente nao estou trabalhando, estou a procura de estagio, atualmente estou estudando programação.<br>pergunte-me sobre?? <br>
+Atualmente nao estou trabalhando, estou a procura de estagio, atualmente estou estudando programação.<br> <br>
 
 
 ## 🌐 Socials:
