@@ -1,5 +1,7 @@
 # 💫 About Me:
-Atualmente nao estou trabalhando, estou a procura de estagio, atualmente estou estudando programação.<br> <br>
+olá! me chamo Raquel tenho 30 anos, sou casada e temos uma filha de 5 anos! <br> <br>
+Estou cursando tecnico de informatica para internet! <br> <br>
+Atualmente nao estou trabalhando, estou a procura de estágio.<br> <br>
 
 
 ## 🌐 Socials:
