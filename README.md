@@ -1,7 +1,7 @@
 # 💫 About Me:
 olá! me chamo Raquel tenho 30 anos, sou casada e temos uma filha de 5 anos! <br> <br>
 Estou cursando tecnico de informatica para internet! <br> <br>
-Atualmente estou eatagiando no DMAE.<br> <br>
+Atualmente estou fazendo estagio no DMAE.<br> <br>
 
 
 ## 🌐 Socials:
